@@ -1,18 +1,21 @@
 ![i](https://komarev.com/ghpvc/?username=cesai-tsarevich)
+        📩
+        
+      Тᴀᴋ чᴇᴦᴏ ᴛы ждᴇɯь!?! Цᴇᴧуй ʍᴇня!
+                                    Сʍᴇᴧᴇй,ᴨᴏᴋᴀ я ɜдᴇᴄь,нᴏ ᴇщё я нᴇ ᴛʙᴏя! -_-
 
-![i](https://github.com/user-attachments/assets/05a1a0a0-f4cd-4d3b-b016-d8eb5b771311)
-----------------------------------
-𝐵𝑜𝓃𝒿𝑜𝓊𝓇! 𝘶 𝘤𝘢𝘯 𝘤𝘢𝘭𝘭 𝘮𝘦 **CESAI** or **TSAREVICH** ꒰ᐢ. .ᐢ꒱
+  <img width="500" height="279" alt="Без названия" src="https://github.com/user-attachments/assets/5f418249-111f-43c1-b882-d3d826b6e884" />
 
-    ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-    
-    𝘪 𝘱𝘭𝘢𝘺 𝘪𝘯 𝘳𝘶𝘴 1 𝘴𝘦𝘳𝘷𝘦𝘳 ૮ ˶ᵔ ᵕ ᵔ˶ ა
-    
-    -----
+♡‧ ::3
+                    
+                      Эᴛᴏ ᴏбᴧᴀᴋᴏ иɜ ᴏᴦня ᴩᴀᴄᴛᴏᴨиᴧᴏ ʍᴏи ᴄнᴇᴦᴀ!?
+            
+<img width="735" height="336" alt="X" src="https://github.com/user-attachments/assets/6a851c77-096b-41d1-a4ae-d8812842a3ea" />
 
-![i](https://github.com/user-attachments/assets/59f5e3cf-7803-4651-9960-9bdccaa9da42)
 
-    
-    -----
-    
-    im cool everyone loves me (｀･ω･´)
+**Hi there!! My name is Tsarevich, hehe~** !!!!!   
+                                             
+                                              #RUS 1 SERVER PLAYER !! LOL 
+                                          💘                     ◞ ◡                           
+<img width="685" height="366" alt="Hi" src="https://github.com/user-attachments/assets/db9638d6-452a-4e53-89b2-0c56507a6bdb" />
+[Nyusha_-_Noch_53296102.mp3](https://github.com/user-attachments/files/31267564/Nyusha_-_Noch_53296102.mp3)
