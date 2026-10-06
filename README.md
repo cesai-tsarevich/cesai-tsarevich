@@ -1,4 +1,4 @@
-![i](https://komarev.com/ghpvc/?username=cesai-tsarevich) 
+![i](https://komarev.com/ghpvc/?username=cesai-tsarevich)  
 <img width="49" height="18" alt="tumblr_1671c943cb54c20369bdd697198fab54_9a1e31a1_75" src="https://github.com/user-attachments/assets/6c2fca4c-cd16-4ab7-9702-feee4a4890c5" />
 
                                                                                                                                             
@@ -21,4 +21,5 @@
 <img width="88" height="33" alt="tumblr_e6f3ba4159e9f8472dedfe69dba459ab_f3342657_100" src="https://github.com/user-attachments/assets/be208c6b-a47c-4445-8946-e0bf620082a2" />
 
 
-XD
+XD                                     
+              **But idk**
