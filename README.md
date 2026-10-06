@@ -1,22 +1,14 @@
 ![i](https://komarev.com/ghpvc/?username=cesai-tsarevich)
-        📩
+<img width="57" height="18" alt="tumblr_a27ea14fea29ab58256d292136cdb62f_391e54f9_75" src="https://github.com/user-attachments/assets/e655473e-0683-42be-b391-46e5358c8acd" />
 
-✦✦✦
 
-        
-<img width="500" height="219" alt="Без названия (1)" src="https://github.com/user-attachments/assets/0dd91ead-c88e-4340-8c2b-ad4ee06124e4" />
+<img width="400" height="21" alt="tumblr_396d7c455aa8e34efd865fab6f3a1e71_f9dfb0c5_400" src="https://github.com/user-attachments/assets/2ebdd817-6ad7-4778-8cff-6e96b41afd89" />
 
-  *"люби меня,дорогая,терпи меня"*
 
-  ✦✦✦
 
-  <img width="736" height="245" alt="Без названия (4)" src="https://github.com/user-attachments/assets/e6ccaa66-81da-41a6-b3ad-a1ce06852df8" />
 
-#RUSS 1 pl✦yer LOL uwu      u c✦n c✦ll me TSАREVICH аnd 
+       𝑩𝒆𝒄𝒂𝒖𝒔𝒆 𝒊𝒕’𝒔 𝒕𝒉𝒆 𝒕𝒉𝒓𝒊𝒍𝒍, 𝒎𝒚 𝒅𝒆𝒂𝒓. 
 
-    i`m so kаwаii :3 ~
-
-    ✦✦✦
-
-<img width="500" height="226" alt="pixels and things" src="https://github.com/user-attachments/assets/f3912a04-1758-4319-8ff4-ae0fc7376d2d" />
-  
+<img width="99" height="56" alt="tumblr_a0a9abed95f47bc2e7cfb1643dbf9ef1_88b43cac_100" src="https://github.com/user-attachments/assets/594b8043-544e-4922-b5e5-523f1effbbf5" />
+<img width="99" height="56" alt="tumblr_371b3f4423561a0ae956c3ab81acb68e_c4dcb2e4_100" src="https://github.com/user-attachments/assets/1b991f4f-5d8c-4a11-ae2d-9d3caa801cff" />
+<img width="99" height="56" alt="tumblr_a0a9abed95f47bc2e7cfb1643dbf9ef1_88b43cac_100" src="https://github.com/user-attachments/assets/3222e59c-2add-4ad6-9620-8f43b5cde856" />
