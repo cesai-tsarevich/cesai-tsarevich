@@ -1,17 +1,39 @@
 ![i](https://komarev.com/ghpvc/?username=cesai-tsarevich) 
-    ── .✦
-    
-<img width="250" height="250" alt="tumblr_9d56250a506b190d590c7d950a6158e4_6263814e_250" src="https://github.com/user-attachments/assets/f9ec1a64-33d0-4023-9333-1e691d7943e9" />  We were born after death.   <img width="250" height="141" alt="tumblr_1a145e2db7c98214a7e04ee002ad3855_726fe31e_250" src="https://github.com/user-attachments/assets/20d5acd3-8b2c-4971-9502-a447441f249f" />
+
+<img width="400" height="25" alt="tumblr_be184d9d68b0b168f1735e8d2ea7b27b_9172b578_400" src="https://github.com/user-attachments/assets/cf294fb7-7691-485c-9a37-d90b040060db" />
+
+tell me,who`d you think you are? & / .
+<img width="100" height="57" alt="tumblr_ca4b59f43a32d2a879fecd23d2935be3_d142cde0_100" src="https://github.com/user-attachments/assets/ab9e4558-a685-47ad-9629-83d61851737f" />
+
+
+ン
+
+
+<img width="20" height="20" alt="tumblr_5c8ee1e55102012f97e457554ba1bf4e_7140b4f3_75" src="https://github.com/user-attachments/assets/6a8ba63c-90a3-4b80-9a33-54281be6c239" />
 
 
 
-<img width="100" height="15" alt="tumblr_d1636832254c18c62cee532e49b22b5c_cfbd7698_100" src="https://github.com/user-attachments/assets/6911cf21-f750-43c1-8225-c68932e56de5" />
 
-⋆ ★
-
-<img width="99" height="57" alt="tumblr_bc8c8d04f30b37a3c521142f497f5985_6a9c2796_100" src="https://github.com/user-attachments/assets/13bc2d9b-012d-43e4-bee7-9c2d4fb3dee4" />
+<img width="62" height="18" alt="tumblr_092adfab0d8a34362e7a17abdf65e6f2_ae165617_75" src="https://github.com/user-attachments/assets/19b26c94-58f7-4481-955a-99c3130034da" />
 
 
 
-  
-<img width="400" height="349" alt="tumblr_d3690e6771b2d31f32454423e0fcc4e4_41811b25_400" src="https://github.com/user-attachments/assets/064c959a-4d6c-4e9d-acbf-1aff7584c783" />
+ヿヿ
+
+
+
+<img width="100" height="57" alt="tumblr_d4b7c16ea3e019fb23bf365e6303ef53_89539932_100" src="https://github.com/user-attachments/assets/7477a150-2676-473c-b61a-2e89873d12b8" />
+
+
+
+<img width="250" height="250" alt="tumblr_e98309f241bb4046d5ff6166282e055f_ec5aac01_250" src="https://github.com/user-attachments/assets/91fffb19-6d9c-4c42-8682-a4954657e468" />
+
+
+
+
+㍐
+
+
+ 
+<img width="20" height="20" alt="tumblr_962610dc20ac53c634690929d4db9267_0e6dc4c1_75" src="https://github.com/user-attachments/assets/2a079780-9c3f-48fa-a4d9-bca2dbf1f086" />
+
